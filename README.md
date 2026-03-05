@@ -15,3 +15,5 @@ El atletismo como estilo de vida** Correr es fundamental para mantener mi equili
 
 **📖 Valores y Fe
 Mi pilar fundamental: Dios** Él es la razón por la que estoy donde estoy hoy. En un mundo complejo, mi prioridad es actuar con integridad, cordura y principios firmes.
+
+**¿Te gusta correo o quieres comenzar?**, buscame en [STRAVA](https://www.strava.com/athletes/gadriv)
